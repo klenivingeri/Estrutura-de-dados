@@ -1,0 +1,3 @@
+Este artigo contém trechos de código escolhidos a dedo por luvas esterilizadas e livres de contaminação e colocados em um travesseiro de cetim .
+Uma equipe de 50 pessoas inspecionou o código e garantiu que estava altamente polido antes de postar. Nosso especialista em postagem de artigos da Suíça acendeu uma vela, e um silêncio caiu sobre a multidão enquanto ele digitava o código no melhor teclado revestido de ouro que o dinheiro pode comprar .
+Todos nós tivemos uma celebração maravilhosa, e todo o grupo marchou pela rua até o café onde toda a cidade de Calcutá acenou “Bon Voyage!” para o artigo como foi postado online.
